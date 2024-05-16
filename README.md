@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @R797-4444
-- 👀 I’m interested in cricket 
-- 🌱 I’m currently learning computers
+- 👀 I’m interested in anything 
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ( you can't)
 - 😄 Pronouns: ...
